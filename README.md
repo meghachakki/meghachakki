@@ -1,5 +1,5 @@
 
-##              👋 Hi, I’m @megha
+##              👋 Hi, I’m Megha
 
 
 ## About Me
